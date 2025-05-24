@@ -7,12 +7,13 @@ In the fast-paced urban environment of Delhi, fire safety is a critical concern.
 Hose pipes are the lifelines of any fire fighting system. Manximpex supplies a broad selection of fire hose pipes made from high-quality rubber, PVC, and canvas, suitable for industrial, commercial, and residential installations. These hose pipes are available in multiple diameters and lengths, designed to withstand high pressure and ensure reliable water flow during emergencies.<br>
 <b>2. Hose Clamps</b><br>
 For secure and leak-free connections, Manximpex provides top-grade hose clamps. These clamps are made of corrosion-resistant materials such as stainless steel and galvanized iron, ensuring long-term durability and performance even in harsh conditions. Hose clamps from Manximpex are easy to install and are critical in maintaining the integrity of fire hose connections.<br>
-3. Hydrant Valves and Accessories
-Hydrant systems are a cornerstone of fixed fire protection setups in buildings and factories. Manximpex supplies hydrant valves—both single and double outlet types—along with all required accessories such as branch pipes, landing valves, nozzles, and coupling systems. These components are manufactured in compliance with IS and international standards, ensuring seamless operation in high-pressure fire fighting conditions.
-4. Fire Hose Reel Drum and Accessories
-Fire hose reel drums are essential for early-stage manual fire fighting. Manximpex offers a wide range of fire hose reels, which include UV-resistant hose pipes, nozzles, mounting brackets, and enclosures. These reels are ideal for commercial and institutional buildings and are designed for easy handling and quick deployment during emergencies.
-5. Fire Extinguishers
-No fire safety setup is complete without reliable fire extinguishers. Manximpex supplies a complete range of extinguishers, including:
+<b>3. Hydrant Valves and Accessories</b><br>
+Hydrant systems are a cornerstone of fixed fire protection setups in buildings and factories. Manximpex supplies hydrant valves—both single and double outlet types—along with all required accessories such as branch pipes, landing valves, nozzles, and coupling systems. These components are manufactured in compliance with IS and international standards, ensuring seamless operation in high-pressure fire fighting conditions.<br>
+<b>4. Fire Hose Reel+ and Accessories</b><br>
+Fire hose reel drums are essential for early-stage manual fire fighting. Manximpex offers a wide range of fire hose reels, which include UV-resistant hose pipes, nozzles, mounting brackets, and enclosures. These reels are ideal for commercial and institutional buildings and are designed for easy handling and quick deployment during emergencies.<br>
+<b>5. Fire Extinguishers</b><br>
+<b>
+No fire safety setup is complete without reliable fire extinguishers. Manximpex supplies a complete range of extinguishers, including:</b><br>
 ABC Dry Powder Extinguishers
 CO2 Extinguishers
 Water-Based Extinguishers
