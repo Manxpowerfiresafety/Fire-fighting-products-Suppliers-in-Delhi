@@ -14,29 +14,30 @@ Fire hose reel drums are essential for early-stage manual fire fighting. Manximp
 <b>5. Fire Extinguishers</b><br>
 <b>
 No fire safety setup is complete without reliable fire extinguishers. Manximpex supplies a complete range of extinguishers, including:</b><br>
-ABC Dry Powder Extinguishers
-CO2 Extinguishers
-Water-Based Extinguishers
-Foam Extinguishers
-Each unit is certified and compliant with BIS standards, suitable for tackling different types of fires (A, B, C, and E categories). These extinguishers are available in portable and trolley-mounted variants for easy access and mobility.
-6. Fire Extinguisher Accessories
-To enhance fire extinguisher usability and maintenance, Manximpex also stocks essential accessories like wall-mounting brackets, discharge hoses, safety pins, pressure gauges, tamper seals, and inspection tags. These components ensure that extinguishers are correctly installed, maintained, and ready for use at all times.
-7. Fire Extinguisher Agents
-Manximpex provides extinguishing agents for refilling or industrial applications. These include:
-ABC Powder
-AFFF Foam
-Carbon Dioxide (CO2)
-Clean Agent (HFC-227ea)
-All agents are tested for performance and meet safety standards, ensuring maximum suppression capabilities for various fire scenarios.
-8. Fire Sprinklers
-Automatic fire sprinklers are crucial for quick suppression before a fire spreads. Manximpex offers a range of options such as pendant, upright, and sidewall sprinklers. These sprinklers are designed to activate at specific temperatures and provide uniform water distribution, making them ideal for offices, malls, factories, and warehouses.
-9. PTFE Teflon Tape
-While small in size, PTFE Teflon tape plays a vital role in sealing threaded connections in fire fighting systems. Manximpex supplies high-grade Teflon tapes that are heat-resistant and chemical-proof, ensuring leak-free and durable pipe fittings.
-10. Conventional Fire Alarms
-For centralized fire detection, Manximpex offers conventional fire alarm systems, which include smoke detectors, heat detectors, manual call points, control panels, hooters, and batteries. These systems are perfect for commercial buildings, schools, and mid-sized establishments.
-11. Standalone Fire Alarm Systems
-Manximpex also supplies standalone fire alarms, which are ideal for small offices and homes. These battery-powered devices detect smoke or heat and emit loud alarms, alerting occupants to evacuate or take action quickly. Easy to install and maintain, these systems are a cost-effective way to boost fire safety.
-Why Choose Manximpex?
+<li>ABC Dry Powder Extinguishers</li>
+<li>CO2 Extinguishers</li>
+<li>Water-Based Extinguishers</li>
+<li>Foam Extinguishers</li>
+Each unit is certified and compliant with BIS standards, suitable for tackling different types of fires (A, B, C, and E categories). These extinguishers are available in portable and trolley-mounted variants for easy access and mobility.<br>
+<b>6. Fire Extinguisher Accessories</b><br>
+To enhance fire extinguisher usability and maintenance, Manximpex also stocks essential accessories like wall-mounting brackets, discharge hoses, safety pins, pressure gauges, tamper seals, and inspection tags. These components ensure that extinguishers are correctly installed, maintained, and ready for use at all times.<br>
+<b>7. Fire Extinguisher Agents</b><br>
+<b>
+Manximpex provides extinguishing agents for refilling or industrial applications. These include:</b><br>
+<li>ABC Powder</li>
+<li>AFFF Foam</li>
+<li>Carbon Dioxide (CO2)</li>
+<li>Clean Agent (HFC-227ea)</li>
+All agents are tested for performance and meet safety standards, ensuring maximum suppression capabilities for various fire scenarios.<br>
+<b>8. Fire Sprinklers</b><br>
+Automatic fire sprinklers are crucial for quick suppression before a fire spreads. Manximpex offers a range of options such as pendant, upright, and sidewall sprinklers. These sprinklers are designed to activate at specific temperatures and provide uniform water distribution, making them ideal for offices, malls, factories, and warehouses.<br>
+<b>9. PTFE Teflon Tape</b><br>
+While small in size, PTFE Teflon tape plays a vital role in sealing threaded connections in fire fighting systems. Manximpex supplies high-grade Teflon tapes that are heat-resistant and chemical-proof, ensuring leak-free and durable pipe fittings.<br>
+<b>10. Conventional Fire Alarms</b><br>
+For centralized fire detection, Manximpex offers conventional fire alarm systems, which include smoke detectors, heat detectors, manual call points, control panels, hooters, and batteries. These systems are perfect for commercial buildings, schools, and mid-sized establishments.<br>
+<b>11. Standalone Fire Alarm Systems</b><br>
+Manximpex also supplies standalone fire alarms, which are ideal for small offices and homes. These battery-powered devices detect smoke or heat and emit loud alarms, alerting occupants to evacuate or take action quickly. Easy to install and maintain, these systems are a cost-effective way to boost fire safety.<br>
+<h3>Why Choose Manximpex?</h3>
 Trusted Quality: All products are rigorously tested and comply with BIS, ISI, and international safety standards.
 Wide Product Range: From basic accessories to advanced detection systems, everything is available under one roof.
 Expertise & Support: Manximpex provides consultation and support for system design, product selection, and installation.
