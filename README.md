@@ -38,15 +38,19 @@ For centralized fire detection, Manximpex offers conventional fire alarm systems
 <b>11. Standalone Fire Alarm Systems</b><br>
 Manximpex also supplies standalone fire alarms, which are ideal for small offices and homes. These battery-powered devices detect smoke or heat and emit loud alarms, alerting occupants to evacuate or take action quickly. Easy to install and maintain, these systems are a cost-effective way to boost fire safety.<br>
 <h3>Why Choose Manximpex?</h3>
-Trusted Quality: All products are rigorously tested and comply with BIS, ISI, and international safety standards.
-Wide Product Range: From basic accessories to advanced detection systems, everything is available under one roof.
-Expertise & Support: Manximpex provides consultation and support for system design, product selection, and installation.
-Timely Delivery: With efficient logistics and warehousing, products are delivered across Delhi and NCR without delays.
-Conclusion
-Manximpex has established itself as a leading fire fighting product supplier in Delhi by offering reliable, certified, and comprehensive safety solutions. Whether you need hose pipes, extinguishers, alarm systems, or complete hydrant installations, Manximpex delivers high-performance equipment that meets the safety demands of modern infrastructure.
-For businesses, property managers, and institutions aiming to elevate their fire safety readiness, Manximpex is the trusted partner to count on.
-Get in touch with us: 
-Website:  https://manximpex.com/ 
-Call us:  +91- 7428115550, +91- 7065192900
-E-mail: info@manximpex.com 
+<li>Trusted Quality: All products are rigorously tested and comply with BIS, ISI, and international safety standards.</li>
+<li>Wide Product Range: From basic accessories to advanced detection systems, everything is available under one roof.</li>
+<li>Expertise & Support: Manximpex provides consultation and support for system design, product selection, and installation.</li>
+<li>Timely Delivery: With efficient logistics and warehousing, products are delivered across Delhi and NCR without delays.</li>
+<h3>Conclusion</h3>
+Manximpex has established itself as a leading <a href="https://manximpex.com/" title="fire fighting products suppliers in Delhi" alt"fire fighting products suppliers in Delhi" >fire fighting product supplier in Delhi</a> by offering reliable, certified, and comprehensive safety solutions. Whether you need hose pipes, extinguishers, alarm systems, or complete hydrant installations, Manximpex delivers high-performance equipment that meets the safety demands of modern infrastructure.<br>
+<h6>For businesses, property managers, and institutions aiming to elevate their fire safety readiness, Manximpex is the trusted partner to count on.</h6>
+<h4>Get in touch with us:</h4> 
+<li>Website:  https://manximpex.com/</li> 
+<li>Call us:  +91- 7428115550, +91- 7065192900</li>
+<li>E-mail: info@manximpex.com</li> 
+<h4>Follow us on</h4>
+<li>Instagram: https://instagram.com/manximpex/</li>
+<li>Facebook: https://facebook.com/manximpex/</li>
+<h4>Subscribe us on Youtube: https://youtube.com/@manximpex</h4>
 Visit our previous article:  https://www.tumblr.com/manxpower/782786476393021440/ensuring-safety-through-innovation-delhis 
